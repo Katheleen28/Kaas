@@ -1,7 +1,7 @@
 # Carloscentrismo 
 Filosofia de Carlos
 
-editar
+
 Carloscentrismo é uma doutrina filosófico-satírica fundada em 2024, centrada na figura de Carlos, proclamado pelos seguidores como “o Único Portador da Verdade Absoluta”. Criada originalmente como uma brincadeira entre amigos, a filosofia rapidamente se transformou em uma “ceita” (termo intencionalmente grafado com “c” para reforçar sua identidade peculiar), cujos adeptos seguem fielmente os ensinamentos e decisões do líder.
 
 Apesar de seu tom cômico e informal, o Carloscentrismo desenvolveu uma estrutura doutrinária complexa, baseada na obediência incondicional e na promessa de paz mundial — desde que conduzida exclusivamente segundo os métodos de Carlos.
